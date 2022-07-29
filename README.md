@@ -1,4 +1,4 @@
-Yo! I'm Andy! I like basketball, video games and anime!
+Yo! I'm Andy! I like sports, video games and anime!
 Careerwise, I am interested in game design and software engineering.
 You can reach out to me at --dong.andy25@outlook.com--!
 
